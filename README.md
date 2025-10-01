@@ -1,12 +1,3 @@
-🐮💕
+Hello, Im Rina (from Sabrina), a C++/UI/Vulkan/OpenGL/Rocm/CUDA programmer, a mathematician and an open-source developer. Wasted love... wasted memories. The reality itself is non-materialist, containing extra-physics existences underlying the material consequences... God, God is above all of evil meanness existence.
 
-hello my name is Rina, i am a 🐄🐈-girl (cowcatgirl) programmer, open-source developer, and a mathematician
-
-i love:  
-cows (being), cats (meow), nocase, sneak_case, turok, and gpus 😊  
-rocm, cuda, opengl, and vulkan 🐄  
-c++ 🐈‍⬛
-math, and physics 💓
-
-kiss2 💔
-kisses 💋
+Kisses, kiss2. 💋🐄🐈‍⬛ In memory of my pets.
