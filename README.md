@@ -1,4 +1,1 @@
-Under a sacred GPU parallelism, a sacred useless existence... arcane mind programmer.
-52.
-
-NO IA SLOP DEVELOPER, NO IA SLOP PROGRAMMER, NO IA AGENT CYBORG.
+... a gente cansa de se doar pelos outros... mas nunca cansarei de me doar por Deus.
